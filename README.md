@@ -1,0 +1,1 @@
+https://trello.com/invite/b/JvXid0Er/cbe55e3f54c015dbdb8a881ed035c8eb/qa-assessment
